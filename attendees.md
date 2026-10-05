@@ -8,3 +8,7 @@ Check in for the GWC @ AU meeting by dropping your name, username, major, and yo
 
 ---
 <!-- ADD YOUR ENTRY BELOW THIS LINE -->
+### Name: Carolina
+* **Major: Computer Science** 
+* **Favorite Snack: Cookies** 
+* **Message for GWC ⸜(｡˃ ᵕ ˂ )⸝♡: I LOVE GWC**
