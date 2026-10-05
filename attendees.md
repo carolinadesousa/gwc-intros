@@ -8,3 +8,6 @@ Check in for the GWC @ AU meeting by dropping your name, username, major, and yo
 
 ---
 <!-- ADD YOUR ENTRY BELOW THIS LINE -->
+* **Cybersecurity** 
+* **Pretzels** 
+* **Salutations!**
