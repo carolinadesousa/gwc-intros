@@ -8,7 +8,13 @@ Check in for the GWC @ AU meeting by dropping your name, username, major, and yo
 
 ---
 <!-- ADD YOUR ENTRY BELOW THIS LINE -->
+
 ### Name: Jade Huynh rawr XD
 **Major:** Computer Science
 * **Favorite Snack:** HOT FRIES
 * **Message for GWC ⸜(｡˃ ᵕ ˂ )⸝♡:**luv you guys!!! our community is growing and i am so proud of all of you <3
+
+### Name: Amogus
+* **Major: Sussy** 
+* **Favorite Snack:Meow** 
+* **Message for GWC ⸜(｡˃ ᵕ ˂ )⸝♡: Big Dada**
