@@ -8,3 +8,7 @@ Check in for the GWC @ AU meeting by dropping your name, username, major, and yo
 
 ---
 <!-- ADD YOUR ENTRY BELOW THIS LINE -->
+### Elisa:
+* **Major: Cyber/PoliSci** 
+* **Favorite Snack: Granola Bars** 
+* **Message for GWC ⸜(｡˃ ᵕ ˂ )⸝♡: haaayyyyyyyyy**
